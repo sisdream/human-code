@@ -26,5 +26,5 @@ Perché ci si mette sempre un’ora a scegliere cosa guardare la sera? Certo è 
          - andiamo a dormire ALTRIMENTI vediamo il film o la serie FINCHE' non ci addormentiamo
     - SE non abbiamo tempo
          - vediamo il film
-    - ALTRIMENTI SE non siamo tutti d'accordo 
+    - ALTRIMENTI SE non siamo tutti d'accordo torno a sceglimo cosa vedere
 
